@@ -1,1 +1,1 @@
-"I gona let you finish but..."
+"I go le you finish but..."
